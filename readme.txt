@@ -1,4 +1,0 @@
-Personal website in progress...
-
-More to add in the future.
-
